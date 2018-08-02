@@ -1,2 +1,0 @@
-# Publi
-Pagina de publi
